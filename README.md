@@ -30,7 +30,9 @@ Recommendations
 Based on the findings, businesses in the bicycle industry can consider the following strategies:
 
 1)Target marketing efforts towards individuals aged 35-45 and those with graduate degrees or partial college education.
+
 2)Develop marketing campaigns that highlight the benefits of biking for individuals with lower car ownership.
+
 3)Create product offerings and pricing strategies that appeal to the income brackets with the highest purchase rates, particularly around $30,000 and $50,000.
 
 By leveraging these insights, businesses can enhance their customer outreach and increase their sales in the bike market.
